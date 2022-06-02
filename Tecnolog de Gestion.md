@@ -1,1 +1,0 @@
-# Tecnologia-de-Gestion
